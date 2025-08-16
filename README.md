@@ -35,7 +35,7 @@
 ## 📄 Resume
 
 📥 https://drive.google.com/file/d/1rsmAMp4oTsrsqlQi4lDQnkmBPl737Ap8/view?usp=sharing
-    https://drive.google.com/file/d/1WJ4ibl6gQTLzL8RqniSFfr0WyPKAgCk8/view?usp=sharing
+📥 https://drive.google.com/file/d/1WJ4ibl6gQTLzL8RqniSFfr0WyPKAgCk8/view?usp=sharing
 ---
 
 ## 📫 Contact Me
